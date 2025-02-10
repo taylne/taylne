@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @taylne
-- 👀 I’m conly a student
+- 👀 I’m only a student
 - 🌱 I’m currently learning coding
 - 💞 i work with people if i want to.
 - 📫 you can reach me on my gmail djibrilsinaba99@gmail.com
